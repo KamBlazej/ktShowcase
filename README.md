@@ -1,0 +1,1 @@
+Pliki pokazowe które są częścią gry KT.
